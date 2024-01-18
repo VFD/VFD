@@ -1,6 +1,6 @@
 ### Hi!
 
-if you want to support my work you can to it, see bellow:
+if you want to support my work you can do it, see bellow:
 
 [Paypal Donate](https://www.paypal.com/donate/?business=5LX8QALBQH58U&no_recurring=0&currency_code=EUR)
 
